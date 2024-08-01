@@ -1,4 +1,4 @@
-### Hi there 👋 Since I was born, I've been known as Rex Wilson :)
+### Hi there 👋 Since I was born, I've been known as Rex Richard Wilson :)
 
 -  I’m currently working as teacher, core banking consultant and real estate
 - 🌱 I’m currently learning Web Development.
